@@ -32,7 +32,7 @@ Kişisel verilerin silinmesini veya yok edilmesini isteme,
 İşlenen verilerin münhasıran otomatik sistemler vasıtasıyla analiz edilmesi suretiyle kişinin kendisi aleyhine bir sonucun ortaya çıkmasına itiraz etme,
 Kişisel verilerin kanuna aykırı olarak işlenmesi sebebiyle zarara uğraması hâlinde zararın giderilmesini talep etme, haklarına sahiptir.
 
-Yukarıda sayılan haklarınızı kullanmak üzere nebahat.kocaman@gmail.com üzerinden bizimle iletişime geçebilirsiniz.
+Yukarıda sayılan haklarınızı kullanmak üzere nebahat.kocaman01@gmail.com üzerinden bizimle iletişime geçebilirsiniz.
 
 ## İletişim
 
