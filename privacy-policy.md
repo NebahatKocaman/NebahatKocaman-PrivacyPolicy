@@ -36,6 +36,6 @@ Yukarıda sayılan haklarınızı kullanmak üzere nebahat.kocaman@gmail.com üz
 
 ## İletişim
 
-Sizlere talepleriniz doğrultusunda hizmet sunabilmek amacıyla, sadece gerekli olan kişisel verilerinizin, işbu gizlilik ve kişisel verilerin işlenmesi politikası uyarınca işlenmesini, kabul edip etmemek hususunda tamamen özgürsünüz. Uygulamayı kullanmaya devam ettiğiniz takdirde, kabul etmiş olduğunuz tarafımızca varsayılacaktır. Şayet kabul etmiyorsanız, lütfen uygulamayı tüm cihazlarınızdan kaldırınız. Ayrıntılı bilgi için bizimle nebahat.kocaman@gmail.com e-mail adresi üzerinden iletişime geçmekten lütfen çekinmeyiniz.
+Sizlere talepleriniz doğrultusunda hizmet sunabilmek amacıyla, sadece gerekli olan kişisel verilerinizin, işbu gizlilik ve kişisel verilerin işlenmesi politikası uyarınca işlenmesini, kabul edip etmemek hususunda tamamen özgürsünüz. Uygulamayı kullanmaya devam ettiğiniz takdirde, kabul etmiş olduğunuz tarafımızca varsayılacaktır. Şayet kabul etmiyorsanız, lütfen uygulamayı tüm cihazlarınızdan kaldırınız. Ayrıntılı bilgi için bizimle nebahat.kocaman01@gmail.com e-mail adresi üzerinden iletişime geçmekten lütfen çekinmeyiniz.
 
 Bu gizlilik politikası, https://sartlar.com aracılığıyla oluşturulmuştur.
